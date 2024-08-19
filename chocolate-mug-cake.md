@@ -17,3 +17,5 @@
 3. If desired, stir in the chocolate chips.
 4. Microwave on high for 1 minute and 30 seconds to 2 minutes, or until the cake has risen and is set but still slightly gooey in the center.
 5. Let the mug cake cool for a minute before enjoying straight from the mug.
+
+#Remarks
